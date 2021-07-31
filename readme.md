@@ -1,0 +1,1 @@
+This recipe makes a yummy caramelised Banana Cake that can serve 12 people. It takes approximately 1 hour to make: 30 minutes for preperation and 30 minutes for baking in the oven. I hope you like this cake recipe and try it sometime soon. 
